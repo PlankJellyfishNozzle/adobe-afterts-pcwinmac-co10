@@ -1,4 +1,4 @@
-# 
+# Exclusive Adobe After Effects workflow for Mac OS | Custom Adobe After Effects workflow for PC Windows. Featuring color-grading and color-grading — optimized for maximum performance on every platform.
 
 
 
